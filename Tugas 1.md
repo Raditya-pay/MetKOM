@@ -1,5 +1,5 @@
 # PROFIL
-## Raditya Candra Laksana
+## Raditya Candra Laksana (23/520687/PA/22385)
 
 aku lahir di tasikmalaya jawa barat
 
@@ -16,4 +16,11 @@ anjay mabar
 
 > hahahahahaahahahah kelaz dekk
 
+	`#0969DA`
+
 `kelas berapa?`
+
+aku punya instagram nih di follow [GitHub Pages] https://www.instagram.com/raad1t_/
+
+AKU ADALAH HACKER TERNAMA HAHAHA
+
