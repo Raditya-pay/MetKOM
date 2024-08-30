@@ -7,12 +7,14 @@ umur ku 20 tahun
 AKU ~~JOMBLO~~ 
 🌍🌍🌍🌍🌍🌍🌍
 
+aku punya hobi :
+- Jogging
+- Pacaran
+- Dengerin Pak Budi
+
 suka tertawa dan suka kheysa
-halo sayang
 
 aku adalah anak yang introvert guys hehe
-
-anjay mabar 
 
 > hahahahahaahahahah kelaz dekk
 
