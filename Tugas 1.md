@@ -1,10 +1,15 @@
-# Nama gua Raditya Candra Laksana NIM 23/520687/PA/22385 gua suka iga bakar
+# PROFIL
+## Raditya Candra Laksana
+
 aku lahir di tasikmalaya jawa barat
+
+umur ku 20 tahun
+AKU ~~JOMBLO~~ 
+🌍🌍🌍🌍🌍🌍🌍
+
 suka tertawa dan suka kheysa
 halo sayang
-🌍
+
 aku adalah anak yang introvert guys hehe
-🌍
-🌐
 
 anjay mabar 
