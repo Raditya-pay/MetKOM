@@ -13,3 +13,7 @@ halo sayang
 aku adalah anak yang introvert guys hehe
 
 anjay mabar 
+
+> hahahahahaahahahah kelaz dekk
+
+`kelas berapa?`
