@@ -20,7 +20,8 @@ anjay mabar
 
 `kelas berapa?`
 
-aku punya instagram nih di follow [GitHub Pages] https://www.instagram.com/raad1t_/
+aku punya instagram nih di follow [https://www.instagram.com/raad1t_/] 
 
 AKU ADALAH HACKER TERNAMA HAHAHA
 
+`hsl(212, 92%, 45%)`
