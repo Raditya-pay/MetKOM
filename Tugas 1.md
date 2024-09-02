@@ -16,14 +16,14 @@ suka tertawa dan suka kheysa
 
 aku adalah anak yang introvert guys hehe
 
+aku punya instagram nih di follow [ini instagram ku ya](https://www.instagram.com/raad1t_/)
+
+
 > hahahahahaahahahah kelaz dekk
 
-	`#0969DA`
-
 `kelas berapa?`
-
-aku punya instagram nih di follow [ini instagram ku ya](https://www.instagram.com/raad1t_/)
 
 AKU ADALAH HACKER TERNAMA HAHAHA
 
 `hsl(212, 92%, 45%)`
+
